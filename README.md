@@ -5,3 +5,6 @@
 
 
 ##### 1. Son tapşırığı tamamlayın.
+
+
+##### 2. Dərsdə verdiyim tapşırığı tamamlayın.
